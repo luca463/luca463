@@ -1,16 +1,13 @@
-## Hi there 👋
+## meu nome é Lucas Mariano Dela Justina
 
-<!--
-**luca463/luca463** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Torço para o PALMEIRAS.
+- ZAGA/LATERAL DIREITA.
+- Falam que eu sou muito MARRENTO EM CAMPO.
+- USO a *5* ou *7*.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## PARA ENTRAR EM CONTATO COMIGO☎️
+
+150 reai no pix po jogo.
+
+📞 (42) 998399243.
